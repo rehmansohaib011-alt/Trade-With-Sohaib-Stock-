@@ -1,1 +1,0 @@
-# Trade-With-Sohaib-Stock-
